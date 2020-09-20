@@ -1,0 +1,6 @@
+Step 1: Getting Started....
+Step 2: sauce should be added on the crust 
+Step 3: toppings should be added after
+Step 4: add cheese ontop of it
+Step 5: should be baked for 10 minutes
+Step 6: ready for consumption....
